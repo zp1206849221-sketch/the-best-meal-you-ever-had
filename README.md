@@ -1,6 +1,6 @@
 [![Bounty](https://make.fun/badge/u-pangg7-the-best-meal-you-ever-had-a3ac0f85.svg)](https://make.fun/bounty/u-pangg7-the-best-meal-you-ever-had-a3ac0f85?utm_source=github&utm_medium=readme&utm_campaign=the-best-meal-you-ever-had)
 [![Rank](https://make.fun/badge/u-pangg7-the-best-meal-you-ever-had-a3ac0f85/zp1206849221-sketch/the-best-meal-you-ever-had/rank.svg)](https://make.fun/bounty/u-pangg7-the-best-meal-you-ever-had-a3ac0f85?utm_source=github&utm_medium=readme&utm_campaign=the-best-meal-you-ever-had)
-[![Reward](https://make.fun/badge/u-pangg7-the-best-meal-you-ever-had-a3ac0f85/reward.svg)](https://make.fun/bounty/u-pangg7-the-best-meal-you-ever-had-a3ac0f85?utm_source=github&utm_medium=readme&utm_campaign=the-best-meal-you-ever-had)
+[![Reward](https://make.fun/badge/u-pangg7-the-best-meal-you-ever-had-a3ac0f85/zp1206849221-sketch/the-best-meal-you-ever-had/reward.svg)](https://make.fun/bounty/u-pangg7-the-best-meal-you-ever-had-a3ac0f85?utm_source=github&utm_medium=readme&utm_campaign=the-best-meal-you-ever-had)
 
 # The Best Meal You Ever Had — entry
 
